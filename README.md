@@ -3,8 +3,5 @@ A curated List of amazing adult toys
 
 This is a list of my favourite toy collections. Feel free to take a look
 
-Games 
-Clamps
-Wands
-https://www.4playessentials.co.za/collections/massage-wand-vibrators
-https://www.4playessentials.co.za/collections/nipple-clit-toys
+Wands - https://www.4playessentials.co.za/collections/massage-wand-vibrators
+Clamps  https://www.4playessentials.co.za/collections/nipple-clit-toys
